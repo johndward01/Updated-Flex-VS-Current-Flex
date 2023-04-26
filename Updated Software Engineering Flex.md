@@ -1,0 +1,12 @@
+- Module 1: Let’s create a rough draft of your resume https://vimeo.com/783769051
+- Module 3: Set up your linkedin profile https://vimeo.com/784647061
+- Module 5: Connect with 10 people a day on Linkedin
+- Module 7: Brand yourself as a software engineer https://vimeo.com/786082825
+- Module 8: Create content for social media (Linkedin, facebook, instagram)
+- Module 9: Your Network determines your Net Worth! https://vimeo.com/788080396
+- Module 10: Conduct informational interviews with industry professionals
+- Module 11: Let’s start the Job search process. Register with Huntr!
+- Module 12: Make your job search easier! Make a list of companies you wish to work for.
+- Module 13: How to Gain Experience without Experience https://vimeo.com/truecodersio/review/792385724/0cf58f787b
+- Module 14: Let’s prepare for your interview!
+- Module 15: Schedule a mock interview
